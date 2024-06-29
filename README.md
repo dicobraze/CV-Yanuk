@@ -1,5 +1,4 @@
 # Янук Вячеслав Александрович
-E-mail: wwwyanuk@mail.ru
-
+E-mail: wwwyanuk@mail.ru  
 телефон: +375333417846
 
